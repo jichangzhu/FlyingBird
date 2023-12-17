@@ -1,5 +1,5 @@
 # 飞鸟机场官网地址
-飞鸟机场最新官网地址：[https://fbaff20231217.fyb-aff02.com/](https://c.jichangzhu.com/goto/flyingbird/)
+飞鸟机场最新官网地址：[飞鸟机场官网地址](https://c.jichangzhu.com/goto/flyingbird/)
 
 ## 飞鸟机场怎么样？
 
